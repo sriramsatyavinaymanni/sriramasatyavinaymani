@@ -1,2 +1,0 @@
-# sriramasatyavinaymani
-personal info
